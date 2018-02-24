@@ -1,8 +1,8 @@
 LuckyBDallas
-![](https://i5.fuskator.com/large/agpD50dCUEa/Platinum-Blonde-Lucky-B-Dallas-with-Tattoo-Wearing-Red-Lingerie-1.jpg)
+![](http://galleries.blacksonblondes.com/content/lucky_b_dallas/pics/pic/01.jpg)
 ![](https://i5.fuskator.com/large/agpD50dCUEa/Platinum-Blonde-Lucky-B-Dallas-with-Tattoo-Wearing-Red-Lingerie-5.jpg)
 ![](https://i5.fuskator.com/large/agpD50dCUEa/Platinum-Blonde-Lucky-B-Dallas-with-Tattoo-Wearing-Red-Lingerie-14.jpg)
-![]()
+![](https://i5.fuskator.com/large/agpD50dCUEa/Platinum-Blonde-Lucky-B-Dallas-with-Tattoo-Wearing-Red-Lingerie-17.jpg)
 ![]()
 ![]()
 ![]()
