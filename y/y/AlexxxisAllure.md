@@ -20,7 +20,7 @@
 ![](http://x.imagefapusercontent.com/u/Bill-75/6794154/193857263/Alexxxis_Allure___10_3256pp_Alexxxis_Allure-712.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/6794154/874947332/Alexxxis_Allure___10_3256pp_Alexxxis_Allure-713.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/6794154/917754318/Alexxxis_Allure___10_3256pp_Alexxxis_Allure-714.jpg)
-#### Alexxxis A
+### Alexxxis A
 ![](http://x.imagefapusercontent.com/u/Bill-75/5576471/1792084760/Alexxxis_A_2983pp_AlexxxisAllure-157.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/5576471/1466597599/Alexxxis_A_2983pp_AlexxxisAllure-168.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/5576471/588726155/Alexxxis_A_2983pp_AlexxxisAllure-189.jpg)
@@ -31,9 +31,10 @@
 ![](http://x.imagefapusercontent.com/u/Bill-75/5576471/169303346/Alexxxis_A_2983pp_AlexxxisAllure-202.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/5576471/1903911687/Alexxxis_A_2983pp_AlexxxisAllure-203.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/5576471/1820450734/Alexxxis_A_2983pp_AlexxxisAllure-204.jpg)
-![]()
-![]()
-![]()
+### Alexxxis Allure 12
+![](http://x.imagefapusercontent.com/u/Bill-75/7103702/820345600/Alexxxis_Allure___12_3333pp_Alexxxis_Allure-282.jpg)
+![](http://x.imagefapusercontent.com/u/Bill-75/7103702/1059697114/Alexxxis_Allure___12_3333pp_Alexxxis_Allure-283.jpg)
+![](http://x.imagefapusercontent.com/u/Bill-75/7103702/1865679517/Alexxxis_Allure___12_3333pp_Alexxxis_Allure-284.jpg)
 ![]()
 ![]()
 ![]()
