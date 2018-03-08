@@ -1,7 +1,8 @@
 ### BUSTY ALURA JENSON FUCK IN THREESOME`★★☆`
-~~![](https://bi.phncdn.com/videos/201501/06/37063871/original/(m=ecuKGgaaaa)(mh=y1u_4ouTRP7GNOKM)11.jpg)~~
+- ![](https://bi.phncdn.com/videos/201501/06/37063871/original/(m=ecuKGgaaaa)(mh=y1u_4ouTRP7GNOKM)11.jpg)
 https://www.pornhub.com/view_video.php?viewkey=942709037
-### PORNSTARPLATINUM - ALURA JENSON WITH KAREN FISHER 3 WAY
+### PORNSTARPLATINUM - ALURA JENSON WITH KAREN FISHER 3 WAY`★☆☆`
+<u>![](https://bi.phncdn.com/videos/201412/04/35621441/original/(m=ecuKGgaaaa)(mh=s7h4mGF2VHbmAaIR)7.jpg)</u>
 https://www.pornhub.com/view_video.php?viewkey=1015169907
 ### KAREN FISHER AND ALURA 3SOME
 https://www.pornhub.com/view_video.php?viewkey=ph57afe4ce5e37a
