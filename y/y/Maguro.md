@@ -1,8 +1,4 @@
 ## Maguro
-### SHIZUKO FUJIKI AND ROSE ROSE AOYAMA
-https://www.pornhub.com/view_video.php?viewkey=ph58ce6907801a3
-### W（ダブル）豊満巨尻旅館 MAGURO-035
-https://www.pornhub.com/view_video.php?viewkey=ph578eddfc7e9a4
 ### MAGURO-070
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c66536
 ### MAGURO-071
@@ -11,6 +7,7 @@ https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c6a028
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c79e49
 ### MAGURO-072 HOSHIYOSHI TSU LEAVE BE TEMPTED TO FULLY OPEN CAR
 https://www.pornhub.com/view_video.php?viewkey=ph59d20b788b77e
+>![](https://bi.phncdn.com/videos/201710/02/135208861/original/(m=ecuKGgaaaa)(mh=J4EDPgWoMHoTMubR)6.jpg)
 ### MAGURO-073
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c8ce12
 ### MAGURO-076
@@ -32,7 +29,6 @@ https://www.pornhub.com/view_video.php?viewkey=ph58be667d2f4f0
 https://www.pornhub.com/view_video.php?viewkey=ph58d8bed839591
 ### N1TR-206
 https://www.pornhub.com/view_video.php?viewkey=ph5984d84b1576f
-
 ### ABNOMAL-031
 https://www.pornhub.com/view_video.php?viewkey=ph59d497073e710
 ### CHUBBY
