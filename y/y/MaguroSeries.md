@@ -20,6 +20,8 @@ https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c66536
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c6a028
 ### MAGURO-072
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c79e49
+### MAGURO-072 HOSHIYOSHI TSU LEAVE BE TEMPTED TO FULLY OPEN CAR
+https://www.pornhub.com/view_video.php?viewkey=ph59d20b788b77e
 ### MAGURO-073
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c8ce12
 ### MAGURO-076
