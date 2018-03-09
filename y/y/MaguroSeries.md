@@ -9,6 +9,8 @@ https://www.pornhub.com/view_video.php?viewkey=ph59887d5681457
 https://www.pornhub.com/view_video.php?viewkey=ph5984d84bd2e04
 ### N1TR-206
 https://www.pornhub.com/view_video.php?viewkey=ph5984d84b1576f
+### MAGURO-071
+https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c6a028
 ### ABNOMAL-031
 https://www.pornhub.com/view_video.php?viewkey=ph59d497073e710
 ### CHUBBY
