@@ -1,4 +1,9 @@
 ```
+chunky
+thick
+chubby
+pawg
+curvy
 Cunt
 Filthy
 Lewd
