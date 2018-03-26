@@ -1,3 +1,4 @@
+![](http://x.imagefapusercontent.com/u/BRUGATINHA/7342052/1358112195/e0d5f2457f2.jpeg)
 ### Fritz The Cat 1972 Crazy Sexy Nude Bertha
 http://www.imagefap.com/gallery.php?gid=7357516
 ![](http://x.imagefapusercontent.com/u/west8099/7357516/386633515/fritz1.gif)
