@@ -48,6 +48,9 @@
 ![](http://x.imagefapusercontent.com/u/Bill-75/7103702/1604326390/Alexxxis_Allure___12_3333pp_Alexxxis_Allure-317.jpg)
 ### Alexxxis Allure
 ![](http://x.imagefapusercontent.com/u/Bill-75/6159028/607974551/Alexxxis_Al_2983pp_AlexxxisAllure-162.jpg)
+![](http://x.imagefapusercontent.com/u/Bill-75/5576471/1867582385/Alexxxis_A_2983pp_AlexxxisAllure-164.jpg)
+![](http://x.imagefapusercontent.com/u/Bill-75/5576471/961448662/Alexxxis_A_2983pp_AlexxxisAllure-167.jpg)
+![](http://x.imagefapusercontent.com/u/Bill-75/5576471/1466597599/Alexxxis_A_2983pp_AlexxxisAllure-168.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/6159028/1533317656/Alexxxis_Al_2983pp_AlexxxisAllure-169.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/6159028/309330410/Alexxxis_Al_2983pp_AlexxxisAllure-203.jpg)
 ![](http://x.imagefapusercontent.com/u/Bill-75/6159028/2005293407/Alexxxis_Al_2983pp_AlexxxisAllure-204.jpg)
