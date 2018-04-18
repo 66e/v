@@ -1,6 +1,5 @@
 ### Complex
 ![](https://i9.fuskator.com/large/ii3GCeot~3o/image-17.jpg)
-![](https://static.hentai-cosplay.com/upload/20160202/10/9851/6.jpg)
 ### KaylaKissRareCandid
 ![](https://i9.fuskator.com/large/jdv11DRKAJJ/image-6.jpg)
 ![](https://i9.fuskator.com/large/jdv11DRKAJJ/image-7.jpg)
