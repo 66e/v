@@ -71,9 +71,9 @@ https://www.pornhub.com/view_video.php?viewkey=ph56c724d82c17b
 ### 3D MMD Gentleman - Haku
 https://www.pornhub.com/view_video.php?viewkey=ph56f3f318b5501
 - ![](https://ci.phncdn.com/videos/201603/24/71896232/original/(m=ecuKGgaaaa)(mh=6Q0Z7vU0EeHqn84-)6.jpg)
-### MMD 3D
-https://www.pornhub.com/view_video.php?viewkey=ph56103f2024219
-- ![](https://ci.phncdn.com/videos/201510/03/58638391/original/(m=ecuKGgaaaa)(mh=EFICLZMg1MWxwTct)8.jpg)
+### R18 MMD KASUKO SWING DANCE
+https://www.pornhub.com/view_video.php?viewkey=ph5a951d70a8618
+- ![](https://ci.phncdn.com/videos/201802/27/156200692/original/(m=ecuKGgaaaa)(mh=BnV7A8ygO-X4neNQ)7.jpg)
 ### 3D MMD - LAMB
 https://www.pornhub.com/view_video.php?viewkey=ph561f1fe227b34
 ### 180305_[MMD]DEMO_HK_KNIGHT_ISOKAZE_HAMAKAZE_CAKEFACE
