@@ -8,6 +8,7 @@ https://www.pornhub.com/view_video.php?viewkey=703774194
 ### 
 
 - ![]()
+![](http://x.imagefapusercontent.com/u/purdie/6744662/500765604/sharon-lee_066.jpg)
 ### Sharon Lee - Asian Pornstar Returns
 http://www.imagefap.com/pictures/7356347/Sharon-Lee-Asian-Pornstar-Returns
 ![](http://x.imagefapusercontent.com/u/T-90/7356347/1414144002/Sharon_Lee_-_Asian_Pornstar_Returns_52884003.jpg)
@@ -25,11 +26,3 @@ http://www.imagefap.com/pictures/6710362/Sharon-Lee-Budding-rock-star
 ![](http://x.imagefapusercontent.com/u/purdie/6710362/674765018/sharon_lee_082.jpg)
 ![](http://x.imagefapusercontent.com/u/purdie/6710362/964542990/sharon_lee_095.jpg)
 ![](http://x.imagefapusercontent.com/u/purdie/6710362/1668986842/sharon_lee_098.jpg)
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
