@@ -21,8 +21,10 @@ http://www.imagefap.com/pictures/7356347/Sharon-Lee-Asian-Pornstar-Returns
 ### Sharon Lee - Budding rock star
 http://www.imagefap.com/pictures/6710362/Sharon-Lee-Budding-rock-star
 ![](http://x.imagefapusercontent.com/u/purdie/6710362/555579950/sharon_lee_003.jpg)
+![](http://x.imagefapusercontent.com/u/purdie/6710362/2139877045/sharon_lee_081.jpg)
+![](http://x.imagefapusercontent.com/u/purdie/6710362/674765018/sharon_lee_082.jpg)
 ![](http://x.imagefapusercontent.com/u/purdie/6710362/964542990/sharon_lee_095.jpg)
-![]()
+![](http://x.imagefapusercontent.com/u/purdie/6710362/1668986842/sharon_lee_098.jpg)
 ![]()
 ![]()
 ![]()
