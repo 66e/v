@@ -12,8 +12,20 @@ https://www.pornhub.com/view_video.php?viewkey=ph5b163b63e90fc
 >[](https://ci.phncdn.com/videos/201806/05/169145172/original/(m=ecuKGgaaaa)(mh=vP2p6H9FhNMNF9d6)13.jpg)
 ---
 ### vide58
-https://www.pornhub.com/view_video.php?viewkey=ph5af626b4aae8d&pkey=12374211
+https://www.pornhub.com/view_video.php?viewkey=ph5af626b4aae8d
 >![](https://ci.phncdn.com/videos/201805/11/165758311/original/(m=ecuKGgaaaa)(mh=2ihLBmt_57RHaIcq)16.jpg)
+---
+### Ruined by the balls Preview
+https://www.pornhub.com/view_video.php?viewkey=ph5b043556478c1
+>[](https://ci.phncdn.com/videos/201805/22/167247072/original/(m=ecuKGgaaaa)(mh=5zUkQaM_MqMY5p5b)16.jpg)
+---
+### Twice ruined by just the tip Preview
+https://www.pornhub.com/view_video.php?viewkey=ph5aeeb400e351a
+>[](https://ci.phncdn.com/videos/201805/06/164989401/original/(m=ecuKGgaaaa)(mh=i3dKTPQ0aPlilz6r)15.jpg)
+---
+### Wrapped (and ruined) around My finger
+https://www.pornhub.com/view_video.php?viewkey=ph5a3d1d3f630d1
+>[](https://ci.phncdn.com/videos/201712/22/146595292/original/(m=ecuKGgaaaa)(mh=8SrjdmCO3CyGmXTM)4.jpg)
 ---
 ### 
 
