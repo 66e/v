@@ -1,10 +1,4 @@
 ## Gif
-### BannerAds
-https://x4i6u4n6.ssl.hwcdn.net/Banner_ads/adult/315x300/video/400.mp4
-![](https://x4i6u4n6.ssl.hwcdn.net/Banner_ads/adult/315x300/video/400.jpg)
->https://x4i6u4n6.ssl.hwcdn.net/Banner_ads/adult/315x300/video/400.webm)
->>https://x4i6u4n6.ssl.hwcdn.net/Banner_ads/adult/315x300/video/400.ogv
----
 ### AD
 ![](http://cdn.tsyndicate.com/images/5/5/4b8c56bb046f834672fd160cc98404075afb83.gif)
 ![](https://static.exosrv.com/library/426227/368bf146c461ce26f53be31048a7f53f631be45c.gif)
