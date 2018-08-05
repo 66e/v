@@ -1,4 +1,7 @@
 ## Gif
+![](https://hw-cdn2.contentabc.com/adtool-premium/creatives/1/49/800432/842068/842068_video.webm)
+![](https://hw-cdn2.contentabc.com/adtool-premium/creatives/1/49/800432/842068/842068_video.mp4)
+https://hw-cdn2.contentabc.com/adtool-premium/creatives/1/49/800432/842068/842068_video.mp4
 ### AD
 ![](http://cdn.tsyndicate.com/images/5/5/4b8c56bb046f834672fd160cc98404075afb83.gif)
 ![](https://static.exosrv.com/library/426227/368bf146c461ce26f53be31048a7f53f631be45c.gif)
