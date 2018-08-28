@@ -1,4 +1,22 @@
 ## AmberNova★★☆.md
+### Amber Nova
+https://www.imagefap.com/pictures/7502418/Amber-Nova
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1427618041/source_ig_share_sheet_igshid_upwj58guu991___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/189651680/ource_ig_share_sheet_igshid_1coihs2kytaki___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1877071834/ource_ig_share_sheet_igshid_1vp728b98m9ea___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/481575742/source_ig_share_sheet_igshid_jdy0dlynny54___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/998685700/source_ig_share_sheet_igshid_mdddbige3efo___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1890861617/source_ig_share_sheet_igshid_g054azk9gdof___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/257697440/source_ig_share_sheet_igshid_1hwqu8j55v66___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/420767730/source_ig_share_sheet_igshid_rl3ebq0rrpy4___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/337537886/source_ig_share_sheet_igshid_8jb6msf6zk5s___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1306846959/source_ig_share_sheet_igshid_m1se8q0ld3xp___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/707032837/ource_ig_share_sheet_igshid_1uiv268flsg91___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1639810997/source_ig_share_sheet_igshid_or4kcp6f2awq___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1500046379/source_ig_share_sheet_igshid_b4vfuew513h5___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/108801383/source_ig_share_sheet_igshid_yq5lon9t055q___.jpg)
+![](https://x.imagefapusercontent.com/u/Sonofmars/7502418/1577581845/ource_ig_share_sheet_igshid_1j2j04xl7uc9d___.jpg)
+---
 ### amber2
 https://www.imagefap.com/pictures/7620131/amber2
 ![](https://x.imagefapusercontent.com/u/diegojara/7620131/1533590452/amber2_ource_ig_share_sheet_igshid_1vp728b98m9ea___.jpg)
@@ -12,3 +30,24 @@ https://www.imagefap.com/pictures/7620131/amber2
 ![](https://x.imagefapusercontent.com/u/diegojara/7620131/1968793714/amber2_ource_ig_share_sheet_igshid_1j2j04xl7uc9d___.jpg)
 ![](https://x.imagefapusercontent.com/u/diegojara/7620131/1684336557/amber2_source_ig_share_sheet_igshid_yq5lon9t055q___.jpg)
 ![](https://x.imagefapusercontent.com/u/diegojara/7620131/1968887705/amber2_source_ig_share_sheet_igshid_b4vfuew513h5___.jpg)
+---
+### amber
+https://www.imagefap.com/pictures/7589123/amber
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1628819390/amber_Amber2_138.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1276715118/amber_Amber2_134.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1063349069/amber_Amber2_132.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/2109425760/amber_Amber2_126.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1194461600/amber_Amber2_106.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/111943078/amber_Amber2_105.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1611019894/amber_Amber2_104.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/2054989544/amber_Amber_075.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/476096897/amber_Amber_072.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/46720332/amber_Amber_070.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1763065609/amber_Amber_083.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/292933778/amber_Amber_062.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1411295889/amber_Amber_031.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1872768757/amber_Amber_026.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1027983524/amber_Amber_035.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1629885148/amber_Amber_036.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/779910473/amber_Amber_034.jpg)
+![](https://x.imagefapusercontent.com/u/diegojara/7589123/1516361444/amber_Amber_001.jpg)
