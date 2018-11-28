@@ -1,4 +1,8 @@
 ## Maguro
+---
+### Javs Like it Public
+https://www.pornhub.com/view_video.php?viewkey=ph5a755f59ec6ee
+![](https://ci.phncdn.com/videos/201802/03/153094282/original/(m=ecuKGgaaaa)(mh=ALzNwsL5oOub-Yt3)1.jpg)
 ### MAGURO-070
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c66536
 ### MAGURO-071
