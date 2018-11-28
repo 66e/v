@@ -1,8 +1,17 @@
 ## Maguro
 ---
+### Javs and Public Buses
+https://www.pornhub.com/view_video.php?viewkey=ph5a7bdfa7229fc
+>![](https://ci.phncdn.com/videos/201802/08/153797302/original/(m=ecuKGgaaaa)(mh=LrrSLMfZGf-EgxeZ)6.jpg)
+---
 ### Javs Like it Public
 https://www.pornhub.com/view_video.php?viewkey=ph5a755f59ec6ee
-![](https://ci.phncdn.com/videos/201802/03/153094282/original/(m=ecuKGgaaaa)(mh=ALzNwsL5oOub-Yt3)1.jpg)
+>![](https://ci.phncdn.com/videos/201802/03/153094282/original/(m=ecuKGgaaaa)(mh=ALzNwsL5oOub-Yt3)1.jpg)
+---
+### MAGURO-076
+https://www.pornhub.com/view_video.php?viewkey=ph59d8d41ca6bb6
+>![](https://ci.phncdn.com/videos/201710/07/135909302/original/(m=ecuKGgaaaa)(mh=cLoUM6ucu6lx9wcY)14.jpg)
+---
 ### MAGURO-070
 https://www.pornhub.com/view_video.php?viewkey=ph59d8d41c66536
 ### MAGURO-071
