@@ -1,16 +1,19 @@
 ## KarenFisher★★☆.md
----
 ### 
 
 >![]()
 ---
 ### Christian and Karen Fisher A Love Affair - Scene 1
 https://www.pornhub.com/view_video.php?viewkey=ph5900fb47d1c3a
->![]()
+>![](https://ci.phncdn.com/videos/201704/26/114558251/original/(m=eaAaGwObaaaa)(mh=3gBB-p3YFE0lW_bn)6.jpg)
 ---
 ### Christian and Karen Fisher A Love Affair - Scene 3
 https://www.pornhub.com/view_video.php?viewkey=ph5900fb6227085
->![]()
+>![](https://ci.phncdn.com/videos/201704/26/114558291/original/(m=eaAaGwObaaaa)(mh=MTP4neTnNBjMoCmJ)5.jpg)
+---
+### Superstar Monster Boobs - Scene 4
+https://www.pornhub.com/view_video.php?viewkey=ph59016a85e2502
+>![](https://ci.phncdn.com/videos/201704/27/114596921/original/(m=ecuKGgaaaa)(mh=IwCyAkRZAvePG2e1)7.jpg)
 ---
 ### Karen Fisher And Alura 3some
 https://www.pornhub.com/view_video.php?viewkey=ph57afe4ce5e37a
