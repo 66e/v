@@ -3,6 +3,14 @@
 
 - ![]()
 ---
+### NICKI MINAJ Part 2 Fapper's Tribute
+https://www.pornhub.com/view_video.php?viewkey=ph5c012dbe97c85
+- ![](https://ci.phncdn.com/videos/201811/30/194469981/original/(m=ecuKGgaaaa)(mh=I2lRGJCVpK2rPP_m)16.jpg)
+---
+### Nicki Minaj Fapper's Tribute
+https://www.pornhub.com/view_video.php?viewkey=ph5aeccd0314553
+- ![](https://ci.phncdn.com/videos/201805/04/164788781/original/(m=ecuKGgaaaa)(mh=ozgAAasskqD-6NHu)12.jpg)
+---
 ### Cardi B - Money (Uncensored Version
 https://www.pornhub.com/view_video.php?viewkey=ph5c258384ef4e0
 - ![](https://ci.phncdn.com/videos/201902/25/209706981/original/(m=ecuKGgaaaa)(mh=Q3lfGIi9XErKqaI2)4.jpg)
