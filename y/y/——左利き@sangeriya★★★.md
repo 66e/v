@@ -1,8 +1,7 @@
-### !_左利き@sangeriya★★★.md
+### ——左利き@sangeriya★★★.md
 ![]()
 
 ![](https://pbs.twimg.com/media/DT-DU_kVMAEHnYj.jpg)
-![](https://pbs.twimg.com/media/DsgzkPwUwAABwW3.jpg)
 ![](https://pbs.twimg.com/media/DsHx9N9U4AAVrE0.jpg)
 ![](https://pbs.twimg.com/media/Dqhl3z7UwAALeEr.jpg)
 ![](https://pbs.twimg.com/media/DrDjUNpUwAEm1zT.jpg)
