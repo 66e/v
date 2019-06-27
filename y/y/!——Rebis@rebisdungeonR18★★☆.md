@@ -6,4 +6,3 @@
 ![](https://pbs.twimg.com/media/D8n5Al2UYAAM1CD.jpg)
 ![](https://pbs.twimg.com/media/D9_C_pDUcAAC7qU.jpg)
 ![](https://pbs.twimg.com/media/D8n5ByUU0AAe2oM.jpg)
-![](https://pbs.twimg.com/media/D9_C_pDUcAAC7qU.jpg)
