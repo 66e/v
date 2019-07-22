@@ -1,6 +1,8 @@
 ### !——ターミナスアクア@terminus_aqua★★☆.md
 ![]()
 
+![](https://pixiv.pximg.net/c/1620x580_90_a2_g5/fanbox/public/images/creator/11523835/cover/PeZ0AfCFqACP75SLVxhL6U5h.jpeg)
+![](https://pixiv.pximg.net/c/1200x630_90_a2_g5/fanbox/public/images/post/466554/cover/uKonXIqoyJLKluDeWBsMhc0t.jpeg)
 ![](https://pbs.twimg.com/media/DPjcy10VAAABl1w?format=jpg)
 ![](https://pbs.twimg.com/media/DPjdAJiVoAAkGif?format=jpg)
 ![](https://pbs.twimg.com/media/DPjdNrMVAAAh_PB?format=jpg)
