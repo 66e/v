@@ -1,6 +1,7 @@
 ### !——Jujunaught@Doonaught★★★.md
 ![]()
 
+![](https://pbs.twimg.com/media/EAE5FcqUIAA87Fn?format=jpg)
 ![](https://pbs.twimg.com/media/Dxe1bfAVYAEX2gF.jpg)
 ![](https://pbs.twimg.com/media/D_E5sHDUEAAdP7K.jpg)
 ![](https://pbs.twimg.com/media/D-puetfUwAABQ0Y.jpg)
