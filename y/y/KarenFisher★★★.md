@@ -1,7 +1,11 @@
-## KarenFisher★★☆.md
+## KarenFisher★★★.md
 ### 
 
->![]()
+- ![]()
+---
+### Karen Fisher strip down and get fucked by a huge black cock
+- https://www.pornhub.com/view_video.php?viewkey=ph598dd70036b4f
+![](https://di.phncdn.com/videos/201708/11/128196391/original/(m=ecuKGgaaaa)(mh=0DCLBW14Guj1E8ge)11.jpg)
 ---
 ### Christian and Karen Fisher A Love Affair - Scene 1
 https://www.pornhub.com/view_video.php?viewkey=ph5900fb47d1c3a
