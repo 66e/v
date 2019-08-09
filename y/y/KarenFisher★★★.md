@@ -4,8 +4,8 @@
 - ![]()
 ---
 ### Karen Fisher strip down and get fucked by a huge black cock
-- https://www.pornhub.com/view_video.php?viewkey=ph598dd70036b4f
-![](https://di.phncdn.com/videos/201708/11/128196391/original/(m=ecuKGgaaaa)(mh=0DCLBW14Guj1E8ge)11.jpg)
+https://www.pornhub.com/view_video.php?viewkey=ph598dd70036b4f
+- ![](https://di.phncdn.com/videos/201708/11/128196391/original/(m=ecuKGgaaaa)(mh=0DCLBW14Guj1E8ge)11.jpg)
 ---
 ### Christian and Karen Fisher A Love Affair - Scene 1
 https://www.pornhub.com/view_video.php?viewkey=ph5900fb47d1c3a
@@ -26,7 +26,3 @@ https://www.pornhub.com/view_video.php?viewkey=ph57afe4ce5e37a
 ### Spicy J and Miss Raquel - ASS PARADE!
 https://www.pornhub.com/view_video.php?viewkey=ph57d0e45bee360
 >![](https://ci.phncdn.com/videos/201609/08/88736611/original/(m=ecuKGgaaaa)(mh=-QvE9m6qTOvR33SZ)12.jpg)
----
-### Chubby Platinum Blonde Babe Karen Fisher Wearing Pink Lingerie
-https://fuskator.com/full/exF8EHXQdaV/Chubby-Platinum-Blonde-Babe-Karen-Fisher-Wearing-Pink-Lingerie.html
-![](https://i4.fuskator.com/large/exF8EHXQdaV/Chubby-Platinum-Blonde-Babe-Karen-Fisher-Wearing-Pink-Lingerie-3.jpg)
