@@ -1,6 +1,11 @@
 ### !——Jujunaught@Doonaught★★★.md
 ![]()
 
+![](https://pbs.twimg.com/media/ECf6LMvU4AACZqK?format=jpg&name=large)
+![](https://pbs.twimg.com/media/ECPLL_mU4AAT0q6?format=jpg&name=large)
+![](https://pbs.twimg.com/media/ECCtmRVUwAEL5qH?format=jpg&name=large)
+![](https://pbs.twimg.com/media/EBzJb1EUEAA6HhQ?format=jpg&name=large)
+![](https://pbs.twimg.com/media/EBuV6NKVUAA2PHP?format=jpg&name=large)
 ![](https://pbs.twimg.com/media/EBTqUQKUIAATv9X?format=jpg&name=large)
 ![](https://pbs.twimg.com/media/EBO1nvIU4AAUaDl?format=jpg&name=large)
 ![](https://pbs.twimg.com/media/EAE5FcqUIAA87Fn?format=jpg)
