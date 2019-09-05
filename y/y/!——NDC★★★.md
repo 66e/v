@@ -2,8 +2,6 @@
 https://twitter.com/ndc_rm
 ![]()
 ![](https://pbs.twimg.com/media/EDm1WDJUcAEFYDY?format=jpg&name=4096x4096)
-![](https://pbs.twimg.com/media/EDm1WDLUEAAvuxF?format=jpg&name=4096x4096)
-![](https://pbs.twimg.com/media/EDm1WDLUEAAvuxF?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/EDm1WDLVAAMBewP?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/EDm1WDMU4AE6joe?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/EDm1I3OUcAA0Mcy?format=jpg&name=4096x4096)
@@ -31,3 +29,8 @@ https://twitter.com/ndc_rm
 ![](https://pbs.twimg.com/media/DtAB_BTV4AA7u_v?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/Ds8YoeLVAAEps8a?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/Dqc07ayXQAA333w?format=jpg&name=4096x4096)
+---
+### 名前が決まらないマン
+![](https://pbs.twimg.com/media/EB2XAttWwAAaV8f?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/EB2XAtxWkAAAdEi?format=jpg&name=4096x4096)
+---
