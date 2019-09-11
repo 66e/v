@@ -3,6 +3,14 @@
 
 - ![]()
 ---
+### Christian and Karen Fisher A Love Affair - Scene 4
+https://www.pornhub.com/view_video.php?viewkey=ph5900f9e9af122
+- ![](https://di.phncdn.com/videos/201704/26/114557451/original/(m=ecuKGgaaaa)(mh=_4FyCJOtuwFWxxoB)9.jpg)
+---
+### Christian and Karen Fisher A Love Affair - Scene 2
+https://www.pornhub.com/view_video.php?viewkey=ph5900faee6d6e4
+- ![](https://ci.phncdn.com/videos/201704/26/114558041/original/(m=ecuKGgaaaa)(mh=P7_Q0wMsVYLvzZwD)10.jpg)
+---
 ### Karen Fisher strip down and get fucked by a huge black cock
 https://www.pornhub.com/view_video.php?viewkey=ph598dd70036b4f
 - ![](https://di.phncdn.com/videos/201708/11/128196391/original/(m=ecuKGgaaaa)(mh=0DCLBW14Guj1E8ge)11.jpg)
