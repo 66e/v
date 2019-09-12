@@ -1,6 +1,9 @@
 ### CosPlay.md
 ![]()
 
+### 羊肉るとん
+![](https://pbs.twimg.com/media/EEElAIsUYAA1Zbe?format=jpg&name=4096x4096)
+---
 ### ほしのうめ
 ![](https://pbs.twimg.com/media/ED2tBd0VAAApHeQ?format=jpg&name=4096x4096)
 ---
