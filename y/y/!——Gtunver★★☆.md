@@ -1,4 +1,4 @@
-### !——Gtunver❤★☆.md
+### !——Gtunver★★☆.md
 - https://twitter.com/gtunver
 ![]()
 ![](https://pbs.twimg.com/media/EFxTjbmUEAALiRw?format=jpg&name=4096x4096)
@@ -33,6 +33,3 @@
 ![](https://pbs.twimg.com/media/Cp_LR1vUEAAmvsb?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/ChAuKDLUgAAbUt8?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/CYgiLznVAAEl3jI?format=jpg&name=4096x4096)
----
-### Cruel.@Colossus_Cruel
-![](https://pbs.twimg.com/media/EFOw0FEUYAA3f89?format=png&name=4096x4096)
