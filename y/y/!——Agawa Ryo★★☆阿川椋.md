@@ -1,6 +1,12 @@
-### !——Agawa Ryo❤★☆.md
+### !——Agawa Ryo★★☆阿川椋.md
 - https://twitter.com/RyoAgawa
 ![]()
+![](https://pbs.twimg.com/media/EG6EMT9U0AEtpwE?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/EGI8oqJUwAAYC-b?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/EF5fmUyU4AA6o4n?format=jpg&name=4096x4096)
+- ![](https://pbs.twimg.com/media/EFzXEXyVAAAY4wf?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/EFuoYYGUcAAbAX9?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/EFe6dXSVAAEfS61?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/D20vf5yUcAE2Yfr?format=png&name=4096x4096)
 ![](https://pbs.twimg.com/media/EFIE-DCU8AASrGX?format=jpg&name=4096x4096)
 ![](https://pbs.twimg.com/media/EFEIfk2VAAEnquC?format=jpg&name=4096x4096)
